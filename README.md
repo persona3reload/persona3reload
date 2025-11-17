@@ -3,8 +3,7 @@
  </p>
  <h5 align="center">
  <img src="https://supplies.ju.mp/assets/images/gallery04/71781e23.gif?v=6a50b904"> remi - cirrus 
-<h5 align="center">
- they / she / it <img src="https://supplies.ju.mp/assets/images/gallery05/bdc7e2c5.gif?v=6a50b904">
+<h5 align="center"> they / she / it <img src="https://supplies.ju.mp/assets/images/gallery05/bdc7e2c5.gif?v=6a50b904">
 <img src="https://64.media.tumblr.com/189c3e633c094152a1e55d58289b6f01/de1e226dceb87430-d1/s640x960/fd24e79c0627cd658192ca71d1df42f547827b1f.gifv">
    <h5 align="center">
     
