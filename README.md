@@ -7,6 +7,6 @@
    they / she / it <img src="https://supplies.ju.mp/assets/images/gallery05/bdc7e2c5.gif?v=6a50b904">
 <img src="https://64.media.tumblr.com/189c3e633c094152a1e55d58289b6f01/de1e226dceb87430-d1/s640x960/fd24e79c0627cd658192ca71d1df42f547827b1f.gifv"> <h5 align="center">
     
-  ![crows](https://komarev.com/ghpvc/?username=persona3reload&color=ff1100&style=solid&label=hearts+stolen)
+  ![crows](https://komarev.com/ghpvc/?username=persona3reload&color=3f4a96&style=solid&label=hearts+stolen)
 <div align="center">
 <img src="https://64.media.tumblr.com/b9c3722b2c8703e14e8c64dc6afcff28/f79b2fa88b5f033d-ba/s100x200/070d050c86b782ef004466bb33cf23de7013a0e6.gifv"> <img src="https://supplies.ju.mp/assets/images/gallery09/fc6104f9.png?v=6a50b904">
