@@ -5,7 +5,7 @@
  <img src="https://supplies.ju.mp/assets/images/gallery04/71781e23.gif?v=6a50b904"> remi - cirrus 
 <h5 align="center">
  they / she / it <img src="https://supplies.ju.mp/assets/images/gallery05/bdc7e2c5.gif?v=6a50b904">
-<img src="https://64.media.tumblr.com/810bbfe8f1556ed312ee830fe707e170/966caa985c2b842b-42/s2048x3072/050a966b181e9fad5daa505d821fbca9daa30f82.pnj">
+<img src="https://64.media.tumblr.com/189c3e633c094152a1e55d58289b6f01/de1e226dceb87430-d1/s640x960/fd24e79c0627cd658192ca71d1df42f547827b1f.gifv">
    <h5 align="center">
     
   ![crows](https://komarev.com/ghpvc/?username=persona3reload&color=ff1100&style=solid&label=hearts+stolen)
