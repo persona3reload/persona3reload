@@ -17,6 +17,7 @@ unlabeledㅤㅤﾉㅤㅤsx5ㅤㅤ𓉸
    </p>
 
    <p align="center">
+      So what if she's using me ? Isn't it a good thing to be used ?
       
   ![crows](https://komarev.com/ghpvc/?username=persona3reload&color=1a2e63&style=solid&label=prisoners) 
 </p> 
